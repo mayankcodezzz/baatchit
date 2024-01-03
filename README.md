@@ -1,0 +1,5 @@
+![Screenshot (16)](https://github.com/mayankcodezzz/baatchit/assets/87845012/c77f2690-b23f-45a5-b864-b1bbe943f4f6)
+![Screenshot (17)](https://github.com/mayankcodezzz/baatchit/assets/87845012/835145b4-7eec-444d-ba99-5583b1c0fcd2)
+![Screenshot (18)](https://github.com/mayankcodezzz/baatchit/assets/87845012/b85ee983-dd3a-4b98-b5df-a00c1cd3c7f2)
+![Screenshot (19)](https://github.com/mayankcodezzz/baatchit/assets/87845012/97d12f86-4ce9-450a-a2fc-7c75c1709fb2)
+![Screenshot (20)](https://github.com/mayankcodezzz/baatchit/assets/87845012/c47c273c-ac31-4eb6-bfef-aab2820b3dd3)
